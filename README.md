@@ -13,3 +13,4 @@ Articolul 3 : Oferta muncii
 - Penalitatile nesupunerii implica procesul de intiganire
 
 Articolul 4 : Astrologia
+aa
