@@ -13,5 +13,5 @@ Articolul 3 : Oferta muncii
 - Penalitatile nesupunerii implica procesul de intiganire
 
 Articolul 4 : Astrologia
-a
-bag pula
+- Urmatoarele fapte se pedepsesc prin moarte la-fund-de-porc:
+- Cititul in vise, cititul in cafea, cititul in palma, cititul in copac.
