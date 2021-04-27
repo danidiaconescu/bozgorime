@@ -12,4 +12,4 @@ Articolul 3 : Oferta muncii
 - Nu exista nici o exceptie
 - Penalitatile nesupunerii implica procesul de intiganire
 
-Articolul 4 : 
+Articolul 4 : Astrologia
