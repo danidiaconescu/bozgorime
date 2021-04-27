@@ -11,3 +11,5 @@ Articolul 3 : Oferta muncii
 - Orice non-dac va fi supus muncii pana la extenuare
 - Nu exista nici o exceptie
 - Penalitatile nesupunerii implica procesul de intiganire
+
+Articol 4 : va urma
