@@ -22,3 +22,4 @@ Articolul 4 : Astrologia si Escrocheria
 - Cititul in vise, cititul in cafea, cititul in palma, cititul in copac.
 - Teapa se plateste in special prin trasul in teapa.
 - Aceste fapte se pot practica doar in cea de-a doua duminica dupa pastele cailor.
+
